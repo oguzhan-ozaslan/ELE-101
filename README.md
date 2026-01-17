@@ -1,3 +1,3 @@
 # ELE-101
 
-[foto](https://tr.wikipedia.org/wiki/Zehirli_y%C4%B1lan)
+![image](96933-03-h.jpg)
